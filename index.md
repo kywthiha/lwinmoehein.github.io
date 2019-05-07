@@ -9,7 +9,7 @@ I have two girlfriends
 - one is a belovely human being
 - another is my computer
 
-Here is me as a first year student..:unicorn:
+Have a great day:
  
-![alt text](https://pbs.twimg.com/profile_images/776119489674960897/m2VFT6XV_400x400.jpg "Me as a first year student")
+![alt text](https://media1.tenor.com/images/6601bd7369103627f52bb2d5590de1f4/tenor.gif?itemid=7902285 "Have a good day guys")
 
